@@ -14,6 +14,12 @@ Xem Phim Ma D𝐚 [Ma D𝐚] mà chất lượng Full HD miễn phí Onl𝚒ne -
 
 Để có những giây phút xem những bộ phim hay, hot nhất hiện nay thì không thể không ghé qua các website xem phim Ma D𝐚 mà chất lượng Full HD miễn phí này.
 
+Ma Da
+
+Ma Da T16 94 Phút 15/08/2024 9.1(282 votes) Quốc gia: Việt Nam Nhà sản xuất: Đang cập nhật Thể loại: Kinh Dị Đạo diễn: Nguyễn Hữu Hoàng Diễn viên: Việt Hương Trung Dân NSUT Thành Lộc
+
+Nội Dung Phim ; Phim kể về hành trình của bà Lệ, người làm nghề vớt xác người chết trên sông để đưa về với gia đình. Trong quá trình làm nghề, bà Lệ đắc tội với Ma Da, một oan hồn sống dưới sông nước thường xuyên kéo chân người để thế mạng cho mình đi đầu thai. Ân oán của cả hai khiến cho Ma Da bắt mất bé Nhung, con gái của bà Lệ. Bà Lệ phải nhờ đến sự giúp đỡ của những người bên cạnh để cùng nhau lên đường tìm cách cứu bé Nhung và mở ra những bí mật đằng sau oan hồn Ma Da kia. Phim mới Ma Da suất chiếu sớm 15.08 (Không áp dụng Movie Voucher), dự kiến khởi chiếu 16.08.2024 tại các rạp chiếu phim toàn quốc.
+
 Làm sao để xem phim Ma D𝐚 mà chất lượng Full HD miễn phí?
 
 Đã từ lâu, các nền tảng phát trực tuyến video đã trở thành phương thức phổ biến nhất để tiêu thụ không chỉ phim truyền hình mà còn cả phim ảnh. Vấn đề là ở đó không phải ai cũng có thể đủ khả năng đăng ký hàng tháng cho một trong những nền tảng này & ít hơn nhiều cho tất cả những nền tảng hiện có.
